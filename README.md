@@ -9,7 +9,7 @@ Welcome to **AIXYTC**, your go-to source for **AI, cybersecurity, automation, an
 - 🚀 **Latest AI & tech trends**  
 
 ## 📜 Privacy Policy  
-Read our **Privacy Policy** [here](Your-GitHub-Privacy-Policy-Link).  
+Read our **Privacy Policy** [here]().  
 
 ## 📢 Connect with Us  
 - 🎥 **YouTube**: [youtube.com/@AIXYTC](https://youtube.com/@AIXYTC)  
