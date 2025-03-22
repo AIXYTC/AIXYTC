@@ -61,7 +61,7 @@ Have questions or concerns? Feel free to reach out! 🚀
 🐦 X (Twitter): Coming Soon... <br>
 📷 Instagram: Coming Soon... <br>
 📝 Threads: Coming Soon... <br>
-📱 WhatsApp Channel: Coming Soon... <br>
+📱 WhatsApp Channel: https://whatsapp.com/channel/0029Vb6ODeiCRs1uRPHZEm1t <br>
 
 🔹 By using our services, you agree to this Privacy Policy. We appreciate your trust! 💙
 
