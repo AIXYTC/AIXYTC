@@ -57,15 +57,11 @@ Have questions or concerns? Feel free to reach out! 🚀
 📧 Contact: aixytc@gamil.com
 🔗 GitHub Repo: https://github.com/AIXYTC/AIXYTC
 🎥 YouTube Channel: https://www.youtube.com/@AIXYTC
-💬 Telegram: Coming Soon...
+💬 Telegram: https://t.me/AIXYTC_BOT
 🐦 X (Twitter): Coming Soon...
 📷 Instagram: Coming Soon...
 📝 Threads: Coming Soon...
 📱 WhatsApp Channel: Coming Soon...
-
-🔹 By using our services, you agree to this Privacy Policy. We appreciate your trust! 💙
-
-Thank you for being part of AIXYTC! 🚀🔒
 
 🔹 By using our services, you agree to this Privacy Policy. We appreciate your trust! 💙
 
