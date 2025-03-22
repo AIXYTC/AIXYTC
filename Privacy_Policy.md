@@ -54,14 +54,14 @@ We may update this Privacy Policy as needed to reflect changes in our services. 
 💬 7. Contact & Support
 Have questions or concerns? Feel free to reach out! 🚀
 
-📧 Contact: aixytc@gamil.com
-🔗 GitHub Repo: https://github.com/AIXYTC/AIXYTC
-🎥 YouTube Channel: https://www.youtube.com/@AIXYTC
-💬 Telegram: https://t.me/AIXYTC_BOT
-🐦 X (Twitter): Coming Soon...
-📷 Instagram: Coming Soon...
-📝 Threads: Coming Soon...
-📱 WhatsApp Channel: Coming Soon...
+📧 Contact: aixytc@gamil.com <br>
+🔗 GitHub Repo: https://github.com/AIXYTC/AIXYTC <br>
+🎥 YouTube Channel: https://www.youtube.com/@AIXYTC <br>
+💬 Telegram: https://t.me/AIXYTC_BOT <br>
+🐦 X (Twitter): Coming Soon... <br>
+📷 Instagram: Coming Soon... <br>
+📝 Threads: Coming Soon... <br>
+📱 WhatsApp Channel: Coming Soon... <br>
 
 🔹 By using our services, you agree to this Privacy Policy. We appreciate your trust! 💙
 
