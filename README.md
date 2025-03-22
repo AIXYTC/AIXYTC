@@ -18,4 +18,4 @@ Read our **Privacy Policy** [here]().
 ## 🤝 Contributions  
 We welcome contributions! Feel free to fork, raise issues, or submit pull requests.  
 
-📌 Stay tuned for more updates & tech innovations! 🚀  
+📌 Stay tuned for more updates & tech innovations! 🚀 
